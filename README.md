@@ -1,1 +1,1 @@
-# danielkniss.github.io blablabla
+# Currículo Daniel Kniss
